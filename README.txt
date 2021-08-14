@@ -1,1 +1,1 @@
-Practica 2 Laboratorio de  Aplicacioens moviles
+Practica 2 Laboratorio de  Aplicaciones Moviles
